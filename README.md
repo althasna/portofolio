@@ -7,7 +7,6 @@ Character Designer & Digital Illustrator
 -  **Role:** Student & Digital Illustrator
 -  **Focus:** Character Design & Concept Art
 -  **Primary Tool:** Ibis Paint X
--  **Contact:** [email-kamu@gmail.com]
 
 ---
 
